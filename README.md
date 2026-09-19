@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="./khushi-shah-banner.png" alt="Khushi Shah - TikTok Shop Affiliate and Creator Marketing" width="100%" />
+  <img src="https://ucarecdn.com/01a65f29-6730-4328-bee1-d5020d69c28a/" alt="Khushi Shah - TikTok Shop Affiliate and Creator Marketing" width="100%" />
 </p>
 
 <h1 align="center">Hi, I'm Khushi Shah 👋</h1>
