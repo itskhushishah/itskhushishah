@@ -6,6 +6,8 @@
 <p align="center"><strong>TikTok Shop Affiliate & Creator Marketing</strong></p>
 <p align="center">I scale creator programs into measurable revenue through strong relationships, sharp operations, and performance-led strategy.</p>
 
+<p align="center">Creator & affiliate marketing operator. 4+ years with brands in India & the US. Open to remote roles. Part-time crochet learner.</p>
+
 <p align="center">
   <a href="https://khushishah.pagey.site/"><strong>Portfolio</strong></a> ·
   <a href="https://www.linkedin.com/in/khushishah11"><strong>LinkedIn</strong></a> ·
