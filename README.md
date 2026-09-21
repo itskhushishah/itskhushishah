@@ -26,7 +26,7 @@
 
 I have 4+ years across creator and affiliate marketing. Most recently, I scaled and ran the TikTok Shop creator affiliate program for a US health, beauty and personal-care brand.
 
-- Recruited, vetted, onboarded, and managed a roster of 500-600 creators.
+- Recruited, vetted, onboarded, and managed 500+ creators.
 - Managed 100-130 sample requests per day with tiered creator growth plans.
 - Led a 3,500-video affiliate sales event that generated $200K in revenue.
 - Built creator outreach and re-engagement systems across WhatsApp and iMessage.
