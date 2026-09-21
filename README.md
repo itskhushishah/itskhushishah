@@ -12,6 +12,7 @@
   <a href="https://khushishah.pagey.site/"><strong>Portfolio</strong></a> ·
   <a href="https://www.linkedin.com/in/khushishah11"><strong>LinkedIn</strong></a> ·
   <a href="https://www.behance.net/khushishah36"><strong>Behance</strong></a> ·
+  <a href="https://topmate.io/khushiishah"><strong>Topmate</strong></a> ·
   <a href="mailto:work.khushishah@gmail.com"><strong>Email</strong></a>
 </p>
 
